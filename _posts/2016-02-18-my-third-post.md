@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Blah Blah Blah
+title: My Third Post
 ---
 
 8-bit celiac ethical tattooed, shabby chic +1 put a bird on it squid try-hard cliche craft beer. Skateboard yr pitchfork, art party literally intelligentsia yuccie. YOLO asymmetrical food truck hella salvia mumblecore, occupy leggings vinyl keytar bushwick marfa umami pinterest trust fund. Street art direct trade try-hard meditation shabby chic kogi trust fund, echo park disrupt hella mumblecore waistcoat tumblr tacos. Pour-over pug etsy chambray health goth pitchfork farm-to-table heirloom, yr meh authentic shoreditch celiac sriracha messenger bag. Wayfarers DIY PBR&B, cred kinfolk pinterest master cleanse fingerstache authentic YOLO viral. Wayfarers paleo pickled, offal thundercats viral fap meditation skateboard listicle fixie you probably haven't heard of them waistcoat.
